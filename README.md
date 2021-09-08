@@ -1,7 +1,7 @@
 Hey, what's up?!
 
 My name is Enã Lins and i'm currently based in Brazil!
-Beside the greates beaches in the whole world, Brazil also have a great developer community that i'm proud of beeing part of.
+Beside the greates beaches in the whole world, Brazil also has a great developer community that i'm proud of beeing part of.
 
 ✨ You can reach me on Instagram or Twitter @hienalins ✨
 
